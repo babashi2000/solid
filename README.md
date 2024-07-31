@@ -5,7 +5,7 @@ nice day
 gm
 let's start
 to the moon !!!g
-LFG!!!
+LFG!!!g
 hahahaoaaa!@33
 babashipsg
 dfvzfdfvb
