@@ -1,6 +1,7 @@
 # solid
 begin
 Hi
+
 nice day
 gm
 let's start
@@ -20,5 +21,5 @@ brfbhtbgbdgbdnli25bhhggghfrgggghfgghgg
 vdfbzdfbzdfbbdbbgbugggfdkhhgffgrrtgtgggg
 kdfvlkjsdnvolas;djggkdfgygbgtrftfgf
 yyyyyggbhrthbsrthsrthbgh
-tgboag[ovui[AOIRG[VUorgj][O9J]OFGVIf
+tgboag[ovui[AOIRG[VUorgj][O9J]OFGVIfg
 glbhmoldgmbplp;sdkm;gvs;dsd
