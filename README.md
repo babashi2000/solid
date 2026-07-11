@@ -8,8 +8,7 @@ let's start
 to the moon !!!gtyf
 LFG!!!gjbffv
 hahahaoaaa!@33rfkjhjgguifgfvgbfgghgtffvvvv
-babashipsghgthhthhhklgggghfffffffgfrggfbbdvbfvf
-gd54fvg5dsf4vfgqyhhghhjghghhhnggfghjhkttkhgjjghg[fgkgfgggffgf
+babashipsghgthhthhhklgggghfffffffgfrggfbbdvbfvfb
 5s4d65sdfbdbjfs8fgrthhgkklmh;jmhghdhhjhh;hghghpfthkfggrfffbfffb cvff
 ldlfjhgnfggm/;;juhhhjlfgyhyhgfgygfgufgrtgfffbhffffffvffvv
 sljincoasldcvdfvdggh6gklighkjghljjhgggfyrhuehyfggygjmhyfrrvrtfffffvv
